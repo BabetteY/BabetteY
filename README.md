@@ -5,12 +5,12 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on figuring out how to delete this spp...
-- 🌱 I’m currently learning ...how to permanently delete this app
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ... deletion of this app
-- 💬 Ask me about ...
+- 🔭 I’m currently working on, not breaking my phone. 
+- 🌱 I’m currently learning ...how not to throw my phone
+- 👯 I’m looking to collaborate with the video aspects
+- 💬 Ask me about whatever
 - 📫 How to reach me: however ...
 - 😄 Pronouns: bitch...
-- ⚡ Fun fact: I Diego of cancer...
--->
+- ⚡ Fun fact: I enjoy digital art..
+-->I'm old as dirt
+I don't know a damn thing about pulls.
